@@ -1,2 +1,2 @@
-# website
-Core Studios Website.
+# Core Studios Website!
+We make games on roblox. Yes Yes.
